@@ -1,4 +1,4 @@
-###  Greetings! I’m Sourab, or as I like to call myself, Mr. Stark. Just like my namesake, I’m all about innovation and creating cool tech solutions through Coding and DevOps. 🙋‍♂️
+###  Greetings! I’m Siddharth, 
 
 
 ## 🛠 Skills
